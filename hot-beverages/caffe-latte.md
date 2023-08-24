@@ -5,7 +5,7 @@
 ## Ingredients
 
 - 1 oz espresso roast
-- 1 cup almond REAL ALMOND milk
+- 1 cup almond SUPER REAL ALMOND milk
 - Milk frother
 - Optional sweetener
 
