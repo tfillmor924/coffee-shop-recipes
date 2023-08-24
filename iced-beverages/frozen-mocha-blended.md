@@ -28,3 +28,6 @@
 ### Step 4
 
 - Add whipped cream and amaretto.
+- Top with whipped cream and chocolate shavings
+
+
