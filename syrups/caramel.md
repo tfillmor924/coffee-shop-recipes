@@ -1,4 +1,4 @@
-# Caramel Syrup
+# Cinnamon Something Syrup
 
 ## Description: Add the exciting sweetness of caramel syrup to any coffee at home with this delicious recipe
 
